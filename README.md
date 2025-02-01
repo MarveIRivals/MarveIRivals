@@ -11,3 +11,5 @@ normally in these areas:⠀lego monkie kid⠀,⠀squid game⠀&&.⠀upper docks
 always w2i⠀-⠀i am usually not paying attention⠀,⠀don't use tonetags on me
 <p align="center">
 <img src="https://files.catbox.moe/bbhhdr.webp" />
+<p align="center">
+<img src="https://spotify-github-profile.kittinanx.com/api/view?uid=2kq4oimu9pg6ns1pv9qan6xlh&cover_image=true&theme=natemoo-re&show_offline=true&background_color=eccbd4&interchange=false&bar_color=a7002c&bar_color_cover=false" />
