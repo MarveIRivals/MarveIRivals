@@ -1,6 +1,10 @@
 <p align="center">
 <img src="https://komarev.com/ghpvc/?username=thanossu&color=415471&style=plastic&label=welcum+2+tha+thanos+world" />
 <p align="center">
+<a href="https://github.com/soudam-yaoi">@soudam-yaoi</a>⠀<a href="https://github.com/AspenFragotte">@AspenFragott</a>⠀abusive⠀a/b/o
+<p align="center">
+family⠀roleplay⠀starts⠀march⠀21th⠀at⠀2:30⠀pm⠀!!!
+<p align="center">
 </a>
 <img src="https://files.catbox.moe/epkoef.png" /> <br />
 <p align="center">
@@ -11,10 +15,6 @@ transboy ⠀. ⠀c&h ok⠀⠀<img src="https://files.catbox.moe/1rdtyc.webp" />
 normally in these areas:⠀lego monkie
 <p align="center">
 kid⠀,⠀squid game⠀&&.⠀upper docks
-<p align="center">
-always w2i⠀-⠀i am usually not paying
-<p align="center">
-attention⠀,⠀don't use tonetags on me
 <p align="center">
 <img src="https://files.catbox.moe/3sgl6x.webp" />
 <p align="center">
