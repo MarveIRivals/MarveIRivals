@@ -3,7 +3,7 @@
 <p align="center">
 <a href="https://github.com/soudam-yaoi">@soudam-yaoi</a>⠀<a href="https://github.com/AspenFragotte">@AspenFragott</a>⠀abusive⠀a/b/o
 <p align="center">
-family⠀roleplay⠀starts⠀march⠀21th⠀at⠀2:30⠀pm⠀!!!
+family⠀roleplay⠀starts⠀march⠀21st⠀at⠀2:30⠀pm⠀!!!
 <p align="center">
 </a>
 <img src="https://files.catbox.moe/epkoef.png" /> <br />
