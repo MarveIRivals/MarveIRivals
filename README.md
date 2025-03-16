@@ -1,9 +1,7 @@
 <p align="center">
 <img src="https://komarev.com/ghpvc/?username=thanossu&color=415471&style=plastic&label=welcum+2+tha+thanos+world" />
 <p align="center">
-<a href="https://github.com/soudam-yaoi">@soudam-yaoi</a>⠀<a href="https://github.com/hyjnjn">@hyjnjn</a>⠀abusive⠀a/b/o
-<p align="center">
-family⠀roleplay⠀starts⠀march⠀21st⠀at⠀2:30⠀pm⠀!!!
+<a href="https://github.com/soudam-yaoi">@soudam-yaoi</a> that's⠀what⠀the⠀mask⠀is
 <p align="center">
 </a>
 <img src="https://files.catbox.moe/epkoef.png" /> <br />
