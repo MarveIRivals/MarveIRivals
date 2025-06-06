@@ -13,3 +13,5 @@ i⠀pretty⠀much⠀follow⠀anyone⠀back⠀i⠀love⠀making⠀friends
 it⠀is⠀preferred⠀for⠀people⠀to⠀interact⠀via⠀whispers⠀or
 <p align="center">
 atabook⠀since⠀i'm⠀always⠀either⠀offtab⠀or⠀in⠀the⠀menu
+<p align="center">
+<img src="https://spotify-github-profile.kittinanx.com/api/view?uid=2kq4oimu9pg6ns1pv9qan6xlh&cover_image=true&theme=natemoo-re&show_offline=true&background_color=8B9493&interchange=false&bar_color=8B9493&bar_color_cover=false" />
