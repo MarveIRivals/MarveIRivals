@@ -1,6 +1,6 @@
 <p align="center">
 </a>
-<img src="https://komarev.com/ghpvc/?username=thanossu&color=2E2D2B&style=plastic&label="⸜( *ˊᵕˋ* )⸝" />⠀
+<img src="https://komarev.com/ghpvc/?username=thanossu&color=EEF0EF&style=plastic&label="❀" />⠀
 <p align="center">
 <a href="https://www.tumblr.com/somlesssssom"><img src="https://i.postimg.cc/Ls7Rn8r9/ezgif-5bc522bd8f7c37.png"</a>
 <p align="center">
